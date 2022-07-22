@@ -14,3 +14,7 @@
 - Procesador: Core i5 1.19 GHz
 - Memoria RAM: 8.00 GB
 - Sistema: 64 bits
+
+
+## Certificado médico 
+-Profesor, le adjunto mi certificado médico como justificación de la falta del día miercoles para que pueda revisar mi tarea por favor.  
