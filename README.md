@@ -18,3 +18,7 @@
 
 ## Certificado médico 
 -Profesor, le adjunto mi certificado médico como justificación de la falta del día miercoles, en dicho papel se indica que debo guardar reposo desde el 20 de Julio hasta el 22 de Julio. Espero que pueda calificar mi tarea por favor. 
+
+## Fotografía del certificado 
+![Image text](https://drive.google.com/file/d/1CYKrFD-U46Yk3z0mymVt9Tc_kLG5gb1R/view?usp=sharing)
+
