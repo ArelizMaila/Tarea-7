@@ -17,4 +17,4 @@
 
 
 ## Certificado médico 
--Profesor, le adjunto mi certificado médico como justificación de la falta del día miercoles para que pueda revisar mi tarea por favor.  
+-Profesor, le adjunto mi certificado médico como justificación de la falta del día miercoles, en dicho papel se indica que debo guardar reposo desde el 20 de Julio hasta el 22 de Julio. Espero que pueda calificar mi tarea por favor. 
